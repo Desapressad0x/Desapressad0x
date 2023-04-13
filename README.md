@@ -1,5 +1,7 @@
 # desapressad0x
 
+![](https://komarev.com/ghpvc/?username=Desapressad0x)
+
 hi,
 i'm desapressado
 

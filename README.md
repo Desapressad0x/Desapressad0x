@@ -5,4 +5,4 @@
 hi,
 i'm desapressado
 
-contact: `desapressado@onionmail.org` or [Discord](https://discordapp.com/users/646783301020942337)
+contact: `desapressad0x@protonmail.com` or [Discord](https://discordapp.com/users/646783301020942337)

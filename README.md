@@ -9,4 +9,4 @@ I am a software developer who is passionate about creating cross-platform soluti
 
 Currently interning at [**@MicrosoftBrasil**](https://twitter.com/MicrosoftBr).
 
-Contact: `desapressad0x@protonmail.com` or [Discord](https://discordapp.com/users/646783301020942337)
+Contact: [Discord](https://discordapp.com/users/646783301020942337)
